@@ -1,1 +1,2 @@
 Gwenn Thompson
+reynosgw@oregonstate.edu
